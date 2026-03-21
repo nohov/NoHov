@@ -1,3 +1,3 @@
+Life cannot be understood backwards but it must be lived forwards -Soren kieregaard
 
-RockNoob_goob#8124
 Building HovaRehab.com and Respeak
